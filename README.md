@@ -3,10 +3,12 @@
 
 ## About Me 🚀
 
-- 🔭 I’m working on Innovation Management, Data Analyitcs, and Business Technologies.
+- 🔭 I enjoy working on the intersection of business, people and technology. 
 
-- 📫 Some colleagues like to call me Mr. Metaphor when I joined the company.
+- 📫 Mr. Metaphor, Management Engineer. Problem Solver.
 
-- 👯 I like to collaborate on Consulting, Technology, Data and AI.
+- 👯 My area of expertise include advanced analytics, digital technology, and management consulting.
  
-- 👯 Fun fact: Sports, Coffee, Music, and Travel.
+- 🎾 Fun fact: Coffee, Music, Reading, Sports, and Travel.
+
+- 💛 "Be a Better Leader, Have a Richer Life"    - Stewart D. Friedman
